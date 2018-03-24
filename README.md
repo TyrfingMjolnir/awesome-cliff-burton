@@ -9,3 +9,4 @@ Links to people who either inspire you to play Cliff Burton's pieces right or at
 
 - Grzegorz Kosinski https://www.youtube.com/channel/UCOjeeDJZCiG4aY1sCoD2oNA
   - (Anesthesia) Pulling Teeth - cover https://youtu.be/lGfZvizK0_4
+  - Cliff Burton Tribute - Bass solo (To live is to die) https://youtu.be/6xzQ69W6QYk
