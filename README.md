@@ -19,10 +19,11 @@ https://www.youtube.com/channel/UCSoO-DMfRxuZm7B-XYSdYsw
 - Nikolay Stravinsky - Orion (Metallica multi instrumental cover) https://youtu.be/2qp_sdPDKmU
 
 # The effort of #TotalCliff by
-Andriy Vasylenko www http://andriyvasylenko.com remember to contribute Vasylenko is doing an amazing job!
-Andriy Vasylenko !yt https://www.youtube.com/channel/UCcwbVudVoRXaZVwB5XVnWEQ
-- #TotalCliff https://www.youtube.com/watch?v=VPg3qsbALIo&list=PLVozhJRNLdm4ulHd95W2OtK-RyUYWrorI
-- Anesthesia Pulling Teeth bass tab (99% accurate!) #TotalCliff https://youtu.be/tK4k6j-FQxA
+- Andriy Vasylenko www http://andriyvasylenko.com remember to contribute Vasylenko is doing an amazing job by writing these songs down on "paper"
+- Andriy Vasylenko !yt https://www.youtube.com/channel/UCcwbVudVoRXaZVwB5XVnWEQ
+  - #TotalCliff https://www.youtube.com/watch?v=VPg3qsbALIo&list=PLVozhJRNLdm4ulHd95W2OtK-RyUYWrorI
+  - Anesthesia Pulling Teeth bass tab (99% accurate!) #TotalCliff https://youtu.be/tK4k6j-FQxA
+  - Craziest Cliff Burton's live bass solos w/ TABS #TotalCliff https://youtu.be/fou0dIWgCzo
 
 # Misc
 - Metallica - Orion - Bass Only - By Cliff Burton https://youtu.be/cVPCC6V3xRs
