@@ -21,4 +21,4 @@ https://www.youtube.com/channel/UCSoO-DMfRxuZm7B-XYSdYsw
 - Andriy Vasylenko www http://andriyvasylenko.com
 - Andriy Vasylenko !yt https://www.youtube.com/channel/UCcwbVudVoRXaZVwB5XVnWEQ
 
-## To teach God to play bass was my last call.
+## "To teach God to play bass was my last call." - could be a quote by Cliff Burton after the fact, no?
