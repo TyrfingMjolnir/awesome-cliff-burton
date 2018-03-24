@@ -5,7 +5,7 @@ Links to people who either inspire you to play Cliff Burton's pieces right or at
   - Anesthesia (Pulling Teeth) - take 1 https://youtu.be/ieRikR39FJA
   - Anesthesia (Pulling Teeth) - take 2 https://youtu.be/C1VDFLaeBYQ
 
-- Total Cliff
+- #TotalCliff https://www.youtube.com/channel/UCcwbVudVoRXaZVwB5XVnWEQ
 
 - Grzegorz Kosinski https://www.youtube.com/channel/UCOjeeDJZCiG4aY1sCoD2oNA
   - (Anesthesia) Pulling Teeth - cover https://youtu.be/lGfZvizK0_4
