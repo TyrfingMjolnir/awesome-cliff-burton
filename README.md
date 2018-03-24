@@ -1,7 +1,7 @@
 # Awesome Clifford Lee Burton
 #### Perhaps the last classic composer out there to make an impression
 As a fan of Cliff Burton's Metallica I compiled the list below( it's still in the making )
-Links to people who either inspire you to play Cliff Burton's pieces right or attempts to teach you how to do this
+Links to people who either inspire you to play Cliff Burton's pieces or attempts to teach you how to do this correctly
 
 # Grzegorz Kosinski
 https://www.youtube.com/channel/UCOjeeDJZCiG4aY1sCoD2oNA
