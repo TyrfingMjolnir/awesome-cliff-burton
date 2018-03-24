@@ -30,5 +30,5 @@ https://www.youtube.com/channel/UCSoO-DMfRxuZm7B-XYSdYsw
 - Metallica - Orion - Bass Only - By Cliff Burton https://youtu.be/cVPCC6V3xRs
 - Metallica - Orion (Remastered with louder bass) https://youtu.be/V4mb_BnKP1A
 
-## "Thunder is just Cliff playing bass in a different dimension" It's good when this composer and bassist is compared to the Norse God of Thunder; Thor
-## "To teach God to play bass was my last call." - could be a quote by Cliff Burton after the fact, no?
+### "Thunder is just Cliff playing bass in a different dimension" It's good when this composer and bassist is compared to the Norse God of Thunder; Thor
+### "To teach God to play bass was my last call." - could be a quote by Cliff Burton after the fact, no?
