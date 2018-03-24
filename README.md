@@ -26,6 +26,7 @@ https://www.youtube.com/channel/UCSoO-DMfRxuZm7B-XYSdYsw
   - #TotalCliff https://www.youtube.com/watch?v=VPg3qsbALIo&list=PLVozhJRNLdm4ulHd95W2OtK-RyUYWrorI
   - Anesthesia Pulling Teeth bass tab (99% accurate!) #TotalCliff https://youtu.be/tK4k6j-FQxA
   - Craziest Cliff Burton's live bass solos w/ TABS #TotalCliff https://youtu.be/fou0dIWgCzo
+  - Metallica Orion bass cover + solo Cliff Burton tribute (free bass tab on AndriyVasylenko.com) https://youtu.be/ihNwO-pGVTc
 
 # Misc
 - Metallica - Orion - Bass Only - By Cliff Burton https://youtu.be/cVPCC6V3xRs
