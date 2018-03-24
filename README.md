@@ -21,6 +21,7 @@ https://www.youtube.com/channel/UCSoO-DMfRxuZm7B-XYSdYsw
 # The effort of #TotalCliff by
 Andriy Vasylenko www http://andriyvasylenko.com remember to contribute Vasylenko is doing an amazing job!
 Andriy Vasylenko !yt https://www.youtube.com/channel/UCcwbVudVoRXaZVwB5XVnWEQ
+#TotalCliff https://www.youtube.com/watch?v=VPg3qsbALIo&list=PLVozhJRNLdm4ulHd95W2OtK-RyUYWrorI
 - Anesthesia Pulling Teeth bass tab (99% accurate!) #TotalCliff https://youtu.be/tK4k6j-FQxA
 
 # Misc
