@@ -1,5 +1,6 @@
 # Awesome Clifford Lee Burton
 #### Perhaps the last classic composer out there to make an impression
+As a fan of Cliff Burton's Metallica I compiled the list below( it's still in the making )
 Links to people who either inspire you to play Cliff Burton's pieces right or attempts to teach you how to do this
 
 # Grzegorz Kosinski
@@ -18,7 +19,12 @@ https://www.youtube.com/channel/UCSoO-DMfRxuZm7B-XYSdYsw
 - Nikolay Stravinsky - Orion (Metallica multi instrumental cover) https://youtu.be/2qp_sdPDKmU
 
 # The effort of #TotalCliff by
-- Andriy Vasylenko www http://andriyvasylenko.com
-- Andriy Vasylenko !yt https://www.youtube.com/channel/UCcwbVudVoRXaZVwB5XVnWEQ
+Andriy Vasylenko www http://andriyvasylenko.com remember to contribute Vasylenko is doing an amazing job!
+Andriy Vasylenko !yt https://www.youtube.com/channel/UCcwbVudVoRXaZVwB5XVnWEQ
+- Anesthesia Pulling Teeth bass tab (99% accurate!) #TotalCliff https://youtu.be/tK4k6j-FQxA
+
+# Misc
+- Metallica - Orion - Bass Only - By Cliff Burton https://youtu.be/cVPCC6V3xRs
+- Metallica - Orion (Remastered with louder bass) https://youtu.be/V4mb_BnKP1A
 
 ## "To teach God to play bass was my last call." - could be a quote by Cliff Burton after the fact, no?
