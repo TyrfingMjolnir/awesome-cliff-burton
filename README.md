@@ -35,3 +35,4 @@ https://www.youtube.com/channel/UCSoO-DMfRxuZm7B-XYSdYsw
 
 ### "Thunder is just Cliff playing bass in a different dimension" It's good when this composer and bassist is compared to the Norse God of Thunder; Thor
 ### "To teach God to play bass was my last call." - could be a quote by Cliff Burton after the fact, no?
+## The numerous saying about him says alot; yet not that many honours him as a composer, more or less all of them are about him as a bass player.
