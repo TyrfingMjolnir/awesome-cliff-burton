@@ -1,4 +1,5 @@
-# awesome-cliff-burton
+# awesome Clifford Lee Burton
+#### perhaps the last classic composer out there to make an impression
 Links to people who either inspire you to play Cliff Burton's pieces right or attempts to teach you how to do this
 
 - Grzegorz Kosinski https://www.youtube.com/channel/UCOjeeDJZCiG4aY1sCoD2oNA
