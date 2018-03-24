@@ -8,5 +8,6 @@ Links to people who either inspire you to play Cliff Burton's pieces right or at
 - Mr5stringBob https://www.youtube.com/channel/UCqGsajc2D513WZ1SeG899vg
   - Anesthesia (Pulling Teeth) - take 1 https://youtu.be/ieRikR39FJA
   - Anesthesia (Pulling Teeth) - take 2 https://youtu.be/C1VDFLaeBYQ
+  - Metallica - Orion bass cover, full song with solos https://youtu.be/ZstbeYiCWrA
 
 - #TotalCliff https://www.youtube.com/channel/UCcwbVudVoRXaZVwB5XVnWEQ
