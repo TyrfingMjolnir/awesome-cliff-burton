@@ -19,7 +19,7 @@ https://www.youtube.com/channel/UCSoO-DMfRxuZm7B-XYSdYsw
 - Nikolay Stravinsky - Orion (Metallica multi instrumental cover) https://youtu.be/2qp_sdPDKmU This is one of the better video efforts I have seen; from an editing point of view for Metallica covers.
 
 # The effort of #TotalCliff by
-#TotalCliff is probably the best effort this far to collect information about Clifford Lee Burton to date, in essence conducted by Andriy Vasylenko more or less in solitude, please help him out if you have access to original photos or their negatives or by supporting him on patreon, his work benefits us all. For those who contribute there are tabs.
+#TotalCliff is probably the best effort this far to collect information about Clifford Lee Burton to date, in essence conducted by Andriy Vasylenko more or less in solitude, please help him out if you have access to original photos or their negatives or by supporting him on patreon, his work benefits us all. For those who contribute there are tabs( GP5, PGX, and PDFs.)
 - Andriy Vasylenko www http://andriyvasylenko.com remember to contribute Vasylenko is doing an amazing job by writing these songs down on "paper" and as curious journalist https://www.patreon.com/AndriyVasylenko
 - Andriy Vasylenko !yt https://www.youtube.com/channel/UCcwbVudVoRXaZVwB5XVnWEQ
   - TOTAL CLIFF: the legacy of Cliff Burton 👊 a tribute book by Andriy Vasylenko https://youtu.be/ksyjDzvvpUI the goal is clear we are here to fix this.
