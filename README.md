@@ -14,4 +14,7 @@ Links to people who either inspire you to play Cliff Burton's pieces right or at
 The effort of #TotalCliff by
 - Andriy Vasylenko https://www.youtube.com/channel/UCcwbVudVoRXaZVwB5XVnWEQ
 
+- Nikolay Stravinsky https://www.youtube.com/channel/UCSoO-DMfRxuZm7B-XYSdYsw
+  - Nikolay Stravinsky - Orion (Metallica multi instrumental cover) https://youtu.be/2qp_sdPDKmU
+
 ## To teach God to play bass was my last call.
