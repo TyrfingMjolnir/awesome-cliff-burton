@@ -21,6 +21,7 @@ https://www.youtube.com/channel/UCSoO-DMfRxuZm7B-XYSdYsw
 # The effort of #TotalCliff by
 - Andriy Vasylenko www http://andriyvasylenko.com remember to contribute Vasylenko is doing an amazing job by writing these songs down on "paper"
 - Andriy Vasylenko !yt https://www.youtube.com/channel/UCcwbVudVoRXaZVwB5XVnWEQ
+  - TOTAL CLIFF: the legacy of Cliff Burton 👊 a tribute book by Andriy Vasylenko https://youtu.be/ksyjDzvvpUI the goal is clear we are here to fix this.
   - #TotalCliff https://www.youtube.com/watch?v=VPg3qsbALIo&list=PLVozhJRNLdm4ulHd95W2OtK-RyUYWrorI
   - Anesthesia Pulling Teeth bass tab (99% accurate!) #TotalCliff https://youtu.be/tK4k6j-FQxA
   - Craziest Cliff Burton's live bass solos w/ TABS #TotalCliff https://youtu.be/fou0dIWgCzo
